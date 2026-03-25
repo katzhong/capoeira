@@ -1,1 +1,1 @@
-# capoeiraedmonton.github.io
+# Edmonton Capoeira Academy
